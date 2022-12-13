@@ -1,2 +1,2 @@
 # Alina Znak
-## e-mail:
+## e-mail: znak.alinaaz@gmail.com
